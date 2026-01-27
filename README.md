@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/HimanshuNaik19](https://github.com/HimanshuNaik19)
 
-- 📫 How to reach me **naikhimanshu235@gmail.com**
+- 📫 How to reach me **naikhimanshu235@gmail.com**  ow+0T4Ho/eKsbEBqipXRD2Sn+LsTaVnvha284jhM
 
 - 📄 Know about my experiences [https://himanshunaikportfolio.netlify.app](https://himanshunaikportfolio.netlify.app)
 
